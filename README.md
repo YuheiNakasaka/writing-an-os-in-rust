@@ -1,0 +1,1 @@
+- [メモ](https://zenn.dev/razokulover/scraps/8482e2478bfa14)
